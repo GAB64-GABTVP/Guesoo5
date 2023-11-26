@@ -8,4 +8,4 @@ Guestoo5 is created on google sites, the point of guestoo5 is to easily click th
 But only one thing that I can't fix is the create a tab or + button I tried to find a button
 that can let me do that sort of stuff but I think there is no way to do that,
 If you want me to add something email me at gabriel.carmo.vip@gmail.com and thank you for using this tab this took me longer to write.
-Creator: Guest5 I also made more sites and Thank you for using Guesoo5!
+Creator: GAB64 I also made more sites and Thank you for using Guesoo5!
